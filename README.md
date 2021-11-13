@@ -1,2 +1,2 @@
-# HyperCasualIntro
+# XYZ Cource - Hyper Casual Intro
  
